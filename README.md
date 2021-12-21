@@ -1,2 +1,1 @@
-# wallpapers
-my wallpapers
+kullandim hep bunlari 💕
